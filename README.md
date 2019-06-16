@@ -1,1 +1,0 @@
-# comunidad_energ-tica
